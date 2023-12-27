@@ -6,9 +6,6 @@ I am a dedicated individual with a deep passion for Model United Nations, which 
 Although my current busy schedule does not provide me the luxury of keeping up with all the latest global events in detail as much as I'd like to, I am still active in chairing conferences from time to time as well as helping out the MUN community by taking on teaching roles to help cultivate the next generation of MUNers in Taiwan.  
 
 ## Conferences Attended
-- **TaoMUN**
-  - Role: UNHRC Delegate
-  - Award: Best Delegate (BD)
 
 ## 2017
 - **NTCMUN**
