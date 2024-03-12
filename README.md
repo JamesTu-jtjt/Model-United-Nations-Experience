@@ -22,7 +22,7 @@ Although my current busy schedule does not provide me the luxury of keeping up w
 - **FLYMUN**
   - Role: USG of Academics and Chair of SOCHUM
 - **TAMUN**
-  - Role: DISEC Chair
+  - Role: USG of Academics and Chair of DISEC
 - **NTCMUN**
   - Role: UNDP Delegate
   - Award: Best Delegation (BD)
