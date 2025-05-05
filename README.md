@@ -74,16 +74,18 @@ Although my current busy schedule does not provide me the luxury of keeping up w
 ## 2024
 - **PMUN**
   - Role: Crisis Chair
+- **Harvard World MUN**
+  - Role: Crisis Assistant Chair
 
 ## Other experiences (2017-2023)
 - 4th Head of Academics for the Taoyuan Fudan High School MUN Club. 
 - Former Director of Academics for the Phoenix Model United Nations Club at National Cheng Kung University. 
 - Founding Member and Head of Academics for the first FLYMUN International Conference in Taoyuan. 
 - Instructor for Tainan Chang Jung Senior High School MUN Club from 2019-2022. 
-- Instructor for National Tainan Junior College of Nursing since 2023. 
+- Instructor for National Tainan Junior College of Nursing from 2023-2024. 
 - Invited guest speaker for Taoyuan Fudan High School. 
 - Invited guest speaker for Taoyuan Municipal Shou-Shan Senior High School. 
 - Invited guest speaker for Taipei Private Wesley Girls High School. 
 - Invited guest speaker for Tainan Chang Jung Senior High School. 
 - Invited guest speaker for Tainan Ying-Hai Senior High School. 
-- Supported and hosted multiple workshops on public speaking, debate, and critical thinking. 
+- Supported and hosted multiple workshops on public speaking, document drafting, and debate. 
